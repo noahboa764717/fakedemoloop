@@ -1,2 +1,10 @@
-# fakedemoloop
-a well made fake iiphone 12 demoloop
+![IMG_0663](https://github.com/user-attachments/assets/587bd36d-edd3-48b4-8682-34335db1e075)#![Up![IMG_0664](https://github.com/user-attachments/assets/82d9957e-da8e-4fec-8cc3-3b8425e86a66)
+loading IMG_0663.jpeg…]()
+ ![IMG_0662](https://github.com/user-attachments/assets/2fb9def0-9693-4a92-a342-aee2739f6e7f)
+e ![IMG_0661](https://github.com/user-attachments/assets/ca1fce30-6cac-4103-a6a0-1471034b7dc0)
+![IMG_0660](https://github.com/user-attachments/assets/29a8771d-2d3e-4a1f-ac26-1bac9a7c1028)
+![IMG_0659](https://github.com/user-attachments/assets/47bec10d-b82a-4863-90c2-f5e5b691fa59)
+![IMG_0658](https://github.com/user-attachments/assets/027defc6-4aac-4325-ab6d-8b2a63e5482c)
+![IMG_0657](https://github.com/user-attachments/assets/3ee1a50f-1be5-45a1-8b28-eb54fcc5f743)
+![IMG_0656](https://github.com/user-attachments/assets/ce258697-d1f4-4fb9-a276-08745bd54c58)
+good made demoloop, fakeahh copycat😛
